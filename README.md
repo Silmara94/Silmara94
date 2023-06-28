@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Silmara94
+- 👋 Hi, I’m @Silmara
 - 👀 I’m recruiter!
 
 <!---
